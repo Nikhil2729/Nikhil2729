@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Nikhil2729
 - 👀 I’m interested in travelling but upto now i never travelled anywhere
 - 🌱 I’m currently a student at RGUKT BASAR
-- 💞️ I’m looking to collaborate on learning with coding and ethical hacking
+- 💞️ I’m looking to collaborate on learning with coding , DSA , Cloud Computing , and AI&ML
 - 📫 How to reach me ?? Ans: Through Instagram kalvalnikhil2024
 - 😄 Pronouns:smily faces never and ever really not likelt to smile 
 - ⚡ Fun fact:....
